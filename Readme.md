@@ -1,4 +1,4 @@
-**The Journey Within: 2048 - A Harmonious Fusion of Numbers and Destiny**
+*The Journey Within: 2048 - A Harmonious Fusion of Numbers and Destiny**
 
 *Unveiling the Divine Symmetry of Your Mind*
 
